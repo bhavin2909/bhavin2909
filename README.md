@@ -2,7 +2,7 @@
 - 👀 I’m interested in Leading | Automating | Problem Solving| Managing | Optimizing | Datacenters
 - 🌱 I’m currently learning AGI | Managing | Leading | Solving Problems
 - 💞️ I’m looking to collaborate on AGI |ML
-- 📫 How to reach me : chinu2909@gmail.com
+- 📫 How to reach me : chinu2909atgmaildotcom
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Wanderers aren’t always lost; by wandering, you might discover new paths and possibilities.
 
